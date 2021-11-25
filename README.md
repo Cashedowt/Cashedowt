@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Cashedowt
+- 👀 I’m interested in Aerospace stuff
+- 🌱 I’m currently studying to become a pilot
+- 📫 If you have any questions dm me on Discord: Cashedowt#3863
